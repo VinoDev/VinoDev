@@ -4,4 +4,3 @@
 - 📫 Reach me: [@OlegVino](https://www.linkedin.com/in/olegvino/)
 - 💬 Feel free to ask my about anything!
 - ⚡ Fun fact: I am a huge history buff!
--->
